@@ -1,0 +1,8 @@
+gvjhkjklşöç
+dgfhjklşi
+etryguıhjopkl
+zdsxfgtvhukolş
+dfghjklşi
+kjhgfdsa
+nbvcxcvbn
+nbvcxcvbnmö
